@@ -1,1 +1,1 @@
-# Web404 project with tea.xyz
+# Web3 project with tea.xyz
